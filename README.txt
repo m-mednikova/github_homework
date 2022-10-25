@@ -7,3 +7,8 @@ I'm planning to research how adding a thin layer of sediment to marshes can prev
 
 Monitoring fish and invertebrates is fun. 
 Wetland plants are cool. 
+
+
+Riplee Mercer
+
+Reasearch interests: IMTAs, seaweed, fisheries biology
